@@ -47,7 +47,7 @@ Dont have any yet ..:) sorry...beginner
 ## 📫 Let's Connect!
 - **Email**:
 - **Lichess**: kolrty99 (1350 Lichess Bullet chess)
-- **Lichess**: 
+- **Linkedin**: 
 
 ---
 
